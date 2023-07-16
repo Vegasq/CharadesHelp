@@ -1,18 +1,18 @@
-# Privacy Policy for Charades
+# Privacy Policy for **Kids Charades!**
 
 Last updated: 2023-07-08
 
 ## Introduction
 
-We respect and protect the privacy of our users. This Privacy Policy explains how we collect and use your information when you use **Charades**.
+We respect and protect the privacy of our users. This Privacy Policy explains how we collect and use your information when you use **Kids Charades!**.
 
-Please note that this Privacy Policy applies only to **Charades**, and not to other services or websites that may be accessible via **Charades**.
+Please note that this Privacy Policy applies only to **Kids Charades!**, and not to other services or websites that may be accessible via **Kids Charades!**.
 
 ## Information We Do Not Collect
 
-**Charades** does not collect or store any personal data. We do not collect any information that enables us to identify who you are.
+**Kids Charades!** does not collect or store any personal data. We do not collect any information that enables us to identify who you are.
 
-We do not track your usage of the app. We do not use cookies or similar tracking technologies. We do not access or store your IP address or other data about the device you use to access **Charades**.
+We do not track your usage of the app. We do not use cookies or similar tracking technologies. We do not access or store your IP address or other data about the device you use to access **Kids Charades!**.
 
 ## Changes to Our Privacy Policy
 
